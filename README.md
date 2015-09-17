@@ -1,2 +1,2 @@
 # 12.-Jimmy
-Judul Project *silahkan diganti
+Elektronil Mail
